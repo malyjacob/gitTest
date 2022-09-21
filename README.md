@@ -5,3 +5,6 @@
 - wu yan sa yu di, chui yan niao niao qi.
 - xun xun mi mi, leng leng qi qi.
 - ling ling sui sui, dian dian di di.
+- cheng wan hu si luan xiang shui bu zhao.
+- xiang si ruo hao bu liao, zhi neng guai wo zhao bu dao jie yao.
+- bie na me jiao ao.
